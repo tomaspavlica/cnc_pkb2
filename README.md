@@ -1,7 +1,7 @@
 # cnc_pkb2
 plans for building cnc mill
 
-# youtube pictures
+# building pictures
 https://www.youtube.com/watch?v=wYetC7yztqo&feature=youtu.be
 
 # run
