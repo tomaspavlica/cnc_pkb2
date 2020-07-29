@@ -1,4 +1,4 @@
-# cnc_pkb2
+# cnc_pkb_2
 plans for building cnc mill in file cnc_pkb_2.pdf - just download
 
 # building pictures
