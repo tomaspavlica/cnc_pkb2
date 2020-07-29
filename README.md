@@ -1,5 +1,5 @@
 # cnc_pkb2
-plans for building cnc mill
+plans for building cnc mill in file cnc_pkb_2.pdf - just download
 
 # building pictures
 https://www.youtube.com/watch?v=wYetC7yztqo&feature=youtu.be
