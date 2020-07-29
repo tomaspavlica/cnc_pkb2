@@ -11,5 +11,5 @@ https://youtu.be/1o67Uesov5s
 
 https://youtu.be/UShfIVc-ob0
 
-If You like this work, I will be pleasured for any $, Euro or whatever You want on may paypal tomas.pavlica@centrum.cz
+If You like this work, I will be pleasured for any $, Euro or whatever You want on my paypal tomas.pavlica@centrum.cz
 Thank You
